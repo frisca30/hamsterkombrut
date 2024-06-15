@@ -3,7 +3,7 @@
 
 Hamster Kombat Bot (Auto Tap, Claim) Tanpa APP_ID dan HASH_ID Telegram
 
-Join Here : [Hamster Kombat](https://bit.ly/3Ro07WD)
+Join Here : [Hamster Kombat](t.me/hamsteR_kombat_bot/start?startapp=kentId860891064)
 
 💸  2k Coins bonus pakai link diatas
 GIVE STARS IF YOU LIKE IT :)
